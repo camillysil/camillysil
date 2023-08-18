@@ -1,0 +1,4 @@
+- Ola, eu sou a camilly rodrigues
+-  Estou interessado em aprender mais sobre a informatica avançada 
+-  Atualmente estou so 6 periodo do curso de informatica
+- Como chegar até mim Email:eucamlly2005@gmail.com
